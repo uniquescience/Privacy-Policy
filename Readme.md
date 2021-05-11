@@ -1,1 +1,1 @@
-# uniquescience.github.io/Privacy-Policy
+# https://uniquescience.github.io/Privacy-Policy/
